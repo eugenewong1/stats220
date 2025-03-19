@@ -13,4 +13,4 @@
 - I like collaborating on projects and learning from others.
 
 A meme that captures how I currently feel about my university studies:  
-![](https://c.tenor.com/8druEACXtX8AAAAd/tenor.gif)
+![](https://tenor.com/bVZ0N.gif)
