@@ -12,5 +12,10 @@
 - I enjoy problem-solving and coding.
 - I like collaborating on projects and learning from others.
 
+### Here are a couple of useful websites
+- [learn code](https://www.w3schools.com/)
+- [LBJ23](https://www.3blue1bron.com/login)
+
 A meme that captures how I currently feel about my university studies:  
-![](https://tenor.com/bVZ0N.gif)
+![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExbzR2OWIwam5hdzAwbHV0ZXpienFiM3h2aWJkcjBtNDl3ZnRtOXQ2YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/IPbS5R4fSUl5S/giphy.gif)
+
